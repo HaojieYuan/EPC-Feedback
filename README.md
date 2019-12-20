@@ -1,1 +1,9 @@
-# EPC-Feedback
+### For IQ and EQ:
+
+One of the best EPC I've ever attend this semester. During this class, I found out that mother terresa is not a flawless person as I thought before. There are criticisms and controversies on what she has done. She did great in helping people in need, however, the way she takes to take care of people should be considered. I won't say she has high EQ or not, because she shows strong empathy on people need help and she refuse to take advances on technology while people with high EQ should tend to be easier to accept new things. I will only say that even the greatest person could make terrible faults. My favorite of this class: " If you can not show empathy on animals, how could I expect you to show empathy on human kind?". That's very impressive.
+
+### For Debate on " should people be vegetarianism?"
+
+I tried to look for the paper that claims vegetarianism  could not result in longevity. Unfortunately I didn't find it. All I got is a report which has similar views. As  far as I know, it is very hard to decide whether one action will result in something on human kind. For example, we observe that vergeterianism people lives longer than those who didn't, we only claim that  vergeterianism is associated with longevity, not vergeterianism results in longevity. Another interesting thing I know is: even smoking is only proved has association with lung cancer, but not a reason that result in lung cancer. So the point is, if it is so hard to decide whether something is the reason of some phenomenon, how could a study claim it is not vegeterinism results in longevity but alcohol and some other bad habits? 
+
+ Is it smoking is only associated with lung cancer but not proved to result in lung cancer means we should keep smoking? Or is it vegetrinism is only associated with longevity but not proved to result in longevity means we should not be vegetrinism?
